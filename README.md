@@ -9,7 +9,7 @@
 **`Digital life`**
 
 
-- *Achievement*: I deleted unnecessary apps and photos from my phones
+- *Achievement*: I deleted unnecessary apps and photos from my phone
 
   
 - *Goal for the future*: Manage my art carrier using my social media accounts. 
